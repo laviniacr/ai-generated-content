@@ -1,8 +1,8 @@
 # AI-Generated Content as the Future of Marketing Strategies
 
 ## Authors
-Lavinia Celina Rahmawati 
-Freddy Sikouonmeu 
+- Lavinia Celina Rahmawati 
+- Freddy Sikouonmeu 
 
 
 ## Abstract 
